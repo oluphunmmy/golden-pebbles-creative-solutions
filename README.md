@@ -9,3 +9,4 @@ our targets markets are corporate individuals and organisations such as schools,
 our trainings are in mini segments that are not expensive to set up such as embroidery, stoning, weaving.
 
 we source and inculcate local materials into our wears.
+This page is live at https://oluphunmmy.github.io/golden-pebbles-creative-solutions/
